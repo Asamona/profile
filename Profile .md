@@ -1,0 +1,2 @@
+Austin Samona
+Marketing Major
